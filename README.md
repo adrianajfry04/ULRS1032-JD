@@ -1,0 +1,2 @@
+# S U M M A R Y
+Dr. Suraya Miskon lectured us this course, which focused on the significance of values and honesty. We also learned about the repercussions caused by corruption and how to prevent it. The course additionally stresses comprehensive answers to modern concerns, modification, and creativity, as well as a science and technology philosophy based on values, integrity, and identity, in order to produce graduates who are bright in regards to physique, sentiment, soul, and intellectual.
